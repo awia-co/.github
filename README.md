@@ -9,4 +9,6 @@
 ### BE CRAZY!! 
 
 
-## Just make sure to love PEOPLE, ANIMALS, and this beautiful PLANET _we call home_ along the way.
+
+
+**Just make sure to love PEOPLE, ANIMALS, and this beautiful PLANET _we call home_ along the way.**
