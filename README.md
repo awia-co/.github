@@ -2,11 +2,11 @@
 
 ## Learn about [Awia Co](https://awia.co)
 
-## Dance.
+### Dance.
 
-## Sing.
+### Sing.
 
-## BE CRAZY!! 
+### BE CRAZY!! 
 
 
-### Just love people, animals, and this beautiful planet we call home along the way.
+## Just make sure to love PEOPLE, ANIMALS, and this beautiful PLANET _we call home_ along the way.
