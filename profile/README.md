@@ -16,7 +16,7 @@ And work can be exhausting.
 
 Especially when you have to manually do tasks that could be automated, or made simpler. 
 
-We think we get that, and we're working to make work just a bit better for all of us.
+We _think_ we get that, and we're working to make work just a bit better for all of us.
 
 ## We'd love your help.
 
